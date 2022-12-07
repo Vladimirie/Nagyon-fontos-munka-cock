@@ -1,2 +1,2 @@
-# Nagyon-fontos-munka-cock
-apucid
+# Nagyon-fontos-munka C O C K
+
